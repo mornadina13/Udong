@@ -9,7 +9,7 @@ https://www.linkedin.com/company/74120635/
 #### Representative : Byungwook Hyeon.
 #### Date of Establishment : Feburary 10, 2021.
 #### Sectors : Application software development and supply.
-#### Current Assets : $150 (June, 2021)
+#### Current Assets : $410 (June, 2021)
 #### Employee : 7 (June, 2021)
 #### Business Contact : mornadina13@gmail.com
 <br>
